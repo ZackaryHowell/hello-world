@@ -1,3 +1,3 @@
 # hello-world
 
-big macs are trash
+whoppers are trash
